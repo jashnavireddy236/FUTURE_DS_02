@@ -1,6 +1,6 @@
 Name: B JASHNAVI
 
-Email:jashnavireddy@gmail.com
+Email:bedudhurijashnavireddy@gmail.com
 
 
 # 📊 Social Media Campaign Performance Tracker
