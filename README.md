@@ -1,4 +1,4 @@
-Name: B JAHSNAVI
+Name: B JASHNAVI
 
 Email:jashnavireddy@gmail.com
 
